@@ -1,16 +1,12 @@
-## Hi there 👋
+# 🎁 Gift Cards | Rewards | Giveaways  
+🚀 Find the best deals on gift cards & get free rewards.  
+💳 Grab limited-time giveaways & exclusive promo codes.  
+📢 Act fast before the offers expire!  
 
-<!--
-**mominurislam9494/mominurislam9494** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎯 What’s Inside?  
+✔️ Daily Free Gift Cards  
+✔️ Top Brand Discounts  
+✔️ Exclusive Giveaway Entries  
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🔗 Visit my site now: [TG24 Shop](https://tg24shop.com/)  
+📌 Start saving today!
